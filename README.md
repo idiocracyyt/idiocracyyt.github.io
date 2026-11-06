@@ -1,0 +1,1 @@
+# idiocracyyt.github.io
